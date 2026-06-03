@@ -1,4 +1,4 @@
-# 
+# Advanced cross-margin trading bot extensions for Mac OS | Instant cross-margin trading bot extensions for PC Windows. Featuring data parsing and router optimization — optimized for maximum performance on every platform.
 
 
 
